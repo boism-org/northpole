@@ -32,6 +32,7 @@
 
 ## 正常使用账号
 1. edmond：https://www.zhihu.com/people/mount_cristo/ <sup>1</sup>
+2. 勃灰色：https://www.zhihu.com/people/greypuppy/
 
 ---
 
