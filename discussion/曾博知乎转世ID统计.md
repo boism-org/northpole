@@ -22,6 +22,7 @@
 5. 勃学家
 6. 勃失败
 7. 硅谷老实人
+8. 勃灰色
 
 ## 永久禁言账号
 1. 夜勃：https://www.zhihu.com/people/ye-bo-zs/
@@ -32,7 +33,6 @@
 
 ## 正常使用账号
 1. edmond：https://www.zhihu.com/people/mount_cristo/ <sup>1</sup>
-2. 勃灰色：https://www.zhihu.com/people/greypuppy/
 
 ---
 
