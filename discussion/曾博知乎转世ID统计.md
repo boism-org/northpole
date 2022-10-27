@@ -28,7 +28,7 @@
 1. 夜勃：https://www.zhihu.com/people/ye-bo-zs/
 2. 小夜勃：https://www.zhihu.com/people/xiao-ye-bo-78/
 3. 勃欣然：https://www.zhihu.com/people/bei-li-kou-58/
-4. 勃北极：https://www.zhihu.com/people/fu-zhi-bo-95/]
+4. 勃北极：https://www.zhihu.com/people/fu-zhi-bo-95/
 5. 勃加蕊：https://www.zhihu.com/people/xiao-xiao-ye-bo/
 
 ## 正常使用账号
